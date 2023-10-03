@@ -1,1 +1,2 @@
-I Simp For Kaori Miyazono And, maybe Bulma...
+Not So Much Anymore
+WHY TF DID YOU CLICK ON THIS
